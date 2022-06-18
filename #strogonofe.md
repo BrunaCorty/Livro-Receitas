@@ -2,7 +2,7 @@
 
 #### Ingredientes
 
-- 1 quilo de carne
+- 1 quilo de carne macia
 
 - 2 latas de creme de leite
 
